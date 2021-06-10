@@ -1,2 +1,2 @@
 # Google_collab]
-I amde all these Codes!!!
+I Made all these Codes!!!
